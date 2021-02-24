@@ -1,1 +1,1 @@
-# OnlineExamProctor
+# CPNTCoin WhitePaper
